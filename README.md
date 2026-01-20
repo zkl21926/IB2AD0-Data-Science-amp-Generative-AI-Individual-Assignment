@@ -1,0 +1,1 @@
+# IB2AD0-Data-Science-amp-Generative-AI-Individual-Assignment
